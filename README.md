@@ -1,7 +1,7 @@
 # polyana
 # Oie, eu sou a Polyana!! :grin:
 
-
+#### Eu sou estudante do ensino médio, estou no meu último ano... Ansiosa para ver o que a vida me rezerva!!
 
 
 -Eu amo gatos
@@ -18,4 +18,4 @@
 
 -Amo meu namorado
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F769130442624654470%2F&psig=AOvVaw1yoQeKb7ug8UVxPLWCOTji&ust=1748711183701000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCNCAvfnWy40DFQAAAAAdAAAAABAE)
+![](https://i.pinimg.com/originals/1d/f6/e2/1df6e21fe2bf1f8b7d9ddd16758b7a8b.gif)
