@@ -11,4 +11,8 @@ Oie, eu sou a Polyana!!
 
 -Meu sonho é ser pedagoga
 
+-Adoro minha família
+
+-Amo meu namorado
+
 
