@@ -1,5 +1,5 @@
 # polyana
-# Oie, eu sou a Polyana!!
+# Oie, eu sou a Polyana!! :grin:
 
 -Eu amo gatos
 
